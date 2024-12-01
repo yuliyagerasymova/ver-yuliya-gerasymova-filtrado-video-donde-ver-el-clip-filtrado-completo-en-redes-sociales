@@ -2,7 +2,14 @@
 
 La reconocida jugadora de voleibol ucraniana Yuliya Gerasymova se encuentra en el centro de la atención mediática tras los rumores sobre un supuesto video filtrado que ha generado polémica en diversas plataformas digitales.
 
-Aunque el contenido en cuestión no ha sido encontrado, las especulaciones no han tardado en surgir, alimentadas por comentarios de internautas que aseguran haber visto el material.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 Video viral de Yuliya Gerasymova
 Según comentarios en redes sociales como Facebook y X (anteriormente conocida como Twitter), el video supuestamente presenta a Gerasymova en una situación comprometida, algo que ha sorprendido a sus seguidores y a la comunidad deportiva.
